@@ -10,5 +10,3 @@ Built for the Architects: Your NFTs aren't just JPEGs; they are the literal arch
 Unfiltered Agency: This is a high-stakes sandbox designed for those who prefer true autonomy over mindless consumption. If you live for the "one more spin" thrill, you’ll find that same energy here—only this time, you’re the one holding the deck.
 
 This is for the crew that knows the value of transparency and isn't afraid to demand it. We’re not here to play by the old rules; we’re here to rewrite the source code.
-
-Would you like me to help you draft a roadmap for your collection or brainstorm specific utility features for these NFTs that mirror the transparent gameplay of your casino?
